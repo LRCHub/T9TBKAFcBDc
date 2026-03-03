@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "Kyukyusha",
+  "base_artist": "C6ix",
+  "createdAt": "2026-03-03T09:10:36.621603Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "Kyukyusha (feat. Jinmenusagi)",
+      "artist": "C6ix",
+      "has_synced": false,
+      "path": "select/pl_01_Kyukyusha_(feat._Jinmenusagi)_C6ix.txt"
+    }
+  ]
+}
