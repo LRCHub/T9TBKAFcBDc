@@ -1,0 +1,70 @@
+# C6ix – Kyukyusha
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Yh 6ix
+Jinmenusagi War up war up
+用意して来た
+軍タイプ用意
+銃爆弾 ピストルダブル
+年22頭ダブル
+カタコト人歌詞意味ダブル
+Nggs in ma shoes
+Do you wanna shoot
+起こすよcoup
+岡崎coup曲detat
+Not coup detat
+曲coup coup 曲detat
+様々bars in my 装甲車
+Jinmenusagi in my ソウコウシャ
+Fck around 呼ぶ呼ぶ救急車
+Grr paw grr paw 救急車
+様々bars in my 装甲車
+Jinmenusagi in my ソウコウシャ
+Fck around 呼ぶ呼ぶ救急車
+Grr paw grr paw 救急車
+その救急車
+拙者が 拙者が 運転者
+拙者が 拙者が ストレンジャー
+デモゴルゴン出た救急車
+朝 カラスとゴミ収集車
+ゲロ 色 牛乳 茶
+ブスガス爆発QQ堂
+Grrpawgrrpaw 救急車
+6ix 言葉の意味ダブル
+Yuki Kawamura triple double
+わけわかめ お前 マグル
+わけわかめ 脳みそバグる
+Hey hey let's go kenka suru
+Boko boko Def Jam VENDETTA
+夕暮れ 流れてくるGAGLE
+屍を越えてケンケンパ
+様々bars in my 装甲車
+Jinmenusagi in my ソウコウシャ
+Fck around 呼ぶ呼ぶ救急車
+Grr paw grr paw 救急車
+様々bars in my 装甲車
+Jinmenusagi in my ソウコウシャ
+Fck around 呼ぶ呼ぶ救急車
+Grr paw grr paw 救急車
+用意して来た
+軍タイプ用意
+銃爆弾 ピストルダブル
+年22頭ダブル
+カタコト人歌詞意味ダブル
+Nggas in ma shoes
+Do you wanna shoot
+起こすよcoup
+岡崎coup曲detat
+Not coup detat
+曲coup coup 曲detat
+様々bars in my 装甲車
+Jinmenusagi in my ソウコウシャ
+Fck around 呼ぶ呼ぶ救急車
+Grr paw grr paw 救急車
+様々bars in my 装甲車
+Jinmenusagi in my ソウコウシャ
+Fck around 呼ぶ呼ぶ救急車
+Grr paw grr paw 救急車
+```
