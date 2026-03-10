@@ -1,4 +1,4 @@
-# C6ix – Kyukyusha
+# C6ix – Kyukyusha（feat. Jinmenusagi）
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
